@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THE HOLIE HISTORIE OF OVR LORD AND SAVIOVR Ieſus Chriſt natiuitie, life, actes, miracles, doctrine, 
+
 1. TO THE RIGHT WORSHIPFVL, MISTRES ANNE PHILIPS OF PICTON, R. H. wiſheth increaſe of worſhip, continuance of godlineſſe, and health in Chriſt Ieſus.
 
 1. TO THE GODLY and Chriſtian Reader.
